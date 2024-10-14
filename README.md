@@ -1,1 +1,0 @@
-# 3week4-5day_HW_rent_mini_project
